@@ -1,4 +1,4 @@
-## Hello0 There 👋
+## Hello There 👋
 
 - 😄 I'm currently a Computer Science Masters Student.
 - 🌱 I also love trying spicy foods!
